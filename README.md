@@ -1,2 +1,3 @@
 # READY-TO-EXPLORE-DISTANCE-EDUCATION-MBA-IN-KERALA--LET-S-GO-
 Kerala, the most literate state, is known for exotic natural beauty and calmness, termed as God’s own land it has so much to offer in context of higher education. A distance education MBA program is in top demand in Kerala among working professionals, and fresh graduates.With impressive features such as distance education programs, online examinations, flexible timings and affordable price it’s the right place to opt for distance education MBA in Kerala. The distance education MBA degree in Kerala  is provided by various reputed institutes in Kerala.
+https://learningshala.in/
